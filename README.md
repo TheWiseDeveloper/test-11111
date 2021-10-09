@@ -1,1 +1,1 @@
-I only exist for next 30 min.
+I think I will exist as an example in a guide.
